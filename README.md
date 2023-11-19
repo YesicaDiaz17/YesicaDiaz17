@@ -9,7 +9,7 @@
   
 - 💬 Ask me about specific administration topics such as human resources and logistics.
   
-- 📫 How to contact me: mailto:yesicadiazmtz.172000@gmail.com or on any of my social media ☁.
+- 📫 How to contact me: yesicadiazmtz.172000@gmail.com or on any of my social media ☁.
   
 - 😄 Pronouns: She/Her 🧝‍♀️
   
